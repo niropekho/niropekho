@@ -5,7 +5,7 @@
 </p>
 <p align="left">
 
-[সর্বশেষ](https://www.niropekho.com/category/latest) |  [রাজনীতি](https://www.niropekho.com/category/politics) |  [বাংলাদেশ](https://www.niropekho.com/category/bangladesh) |  [বিশ্ব](https://www.niropekho.com/category/world) |  [বাণিজ্য](https://www.niropekho.com/category/business) |  [খেলা](https://www.niropekho.com/category/sports) |  [বিনোদন](https://www.niropekho.com/category/entertainment) | [প্রযুক্তি](https://www.niropekho.com/category/technology) |  [শিক্ষা](https://www.niropekho.com/category/education) |  [চাকরি](https://www.niropekho.com/category/jobs) |  [জীবনযাপন](https://www.niropekho.com/category/lifestyle)
+[সর্বশেষ](https://www.niropekho.com/category/latest) |  [রাজনীতি](https://www.niropekho.com/category/politics) |  [বাংলাদেশ](https://www.niropekho.com/category/bangladesh) |  [বিশ্ব](https://www.niropekho.com/category/international) |  [বাণিজ্য](https://www.niropekho.com/category/business) |  [খেলা](https://www.niropekho.com/category/sports) |  [বিনোদন](https://www.niropekho.com/category/entertainment) | [প্রযুক্তি](https://www.niropekho.com/category/science-technology) |  [শিক্ষা](https://www.niropekho.com/category/education) |  [চাকরি](https://www.niropekho.com/category/job) |  [জীবনযাপন](https://www.niropekho.com/category/ife-living)
 
 </p>
 
