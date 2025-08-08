@@ -45,6 +45,42 @@
 
 ---
 
+# Niropekho English Your Trusted Online News Portal
+
+In today's digital age, getting news is easy, but finding reliable and accurate news is often challenging. To tackle this issue, **[Niropekho English](https://www.en.niropekho.com)** plays a significant role as a trusted online news portal in Bangladesh.
+
+## About **[Niropekho English](https://www.en.niropekho.com)**
+
+**[Niropekho English](https://www.en.niropekho.com)** is a reputable online news platform designed for Bangladeshi readers. Here you will find the latest news, analytical reports, and updates on politics, economy, entertainment, sports, health, science, technology, and much more from home and abroad.
+
+## Why Choose niropekho?
+
+- **Reliable and Neutral News:** Staying true to its name, niropekho.com strives to publish news that is completely neutral and based on accurate information without any bias or misinformation.
+
+- **Fast Updates:** Important news from home and abroad is updated quickly so readers always stay on top of current events.
+
+- **Easy Navigation:** The website is very user-friendly, making it easy for anyone to find the news they need.
+
+- **Various Categories:** From politics to economy, sports to entertainment, health to science—all in one place.
+
+- **Mobile Friendly:** Optimized for all smartphones and tablets, so you can stay updated wherever you are.
+
+## Importance of niropekho
+
+In the era of numerous online news portals, getting true and accurate news is crucial. Through **[Niropekho English](https://www.en.niropekho.com)**, the general public easily accesses reliable information that supports their daily life and work.
+
+## Future Plans
+
+**[Niropekho English](https://www.en.niropekho.com)** aims to create new horizons in news delivery using advanced technology. Plans include video news, live streaming, and more interactive content to enrich the reader’s experience.
+
+---
+
+### In Summary
+
+**[Niropekho English](https://www.en.niropekho.com)** is one of Bangladesh's most trusted online news media platforms, providing reliable and up-to-date news.
+
+---
+
 ## আমার গিটহাব প্রোফাইল (GitHub Profile)
 
 [GitHub - rftriazislam](https://github.com/rftriazislam)
